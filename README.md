@@ -1,4 +1,4 @@
-![Jaune et Noir Global Réponse Ingénieur LinkedIn Bannière](https://user-images.githubusercontent.com/58754246/137631348-598301f0-04a5-4305-b862-e80972f1be89.png)
+![Jaune et Noir Global Réponse Ingénieur LinkedIn Bannière (1)](https://user-images.githubusercontent.com/58754246/137631867-954eeae5-3651-4e12-9a29-52b5ff3816ae.png)
 
 - 👋 Hi, I’m @Bg-Salma
 - 👀 I’m interested in IT domains 
